@@ -1,5 +1,5 @@
 # Black_Viru5_Recon_v1.0
-Hi Hunters! Here's V1 0f My  Recon Methodology  , hope to enjoy 
+Hi Hunters! Here's V1 0f My  Recon Methodology  , Enjoy 
 
 ***Note***: you can Edit Mindmap Here :
 https://excalidraw.com/?#json=ea1Ew1w-i8NFLH2lc05DU,urPztPFPHYRr6PZqbWtK2w
